@@ -6,5 +6,7 @@ thanks XD
 
 contact:
 telegram: @wiydarrr
+
 instagram: muhammadtche
+
 snapchat: muhammadtche
