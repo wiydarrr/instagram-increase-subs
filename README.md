@@ -4,7 +4,7 @@ just open .exe file and type in ur username
 
 thanks XD
 
-contact:
+contact:                                                                                                                                                                                                              
 telegram: @wiydarrr                                                                                                                                                                                                              
 instagram: muhammadtche                                                                                                                                                                                                               
 snapchat: muhammadtche
